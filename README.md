@@ -1,0 +1,12 @@
+# sql
+![image](https://github.com/user-attachments/assets/b2bfe21d-4a0c-4f9b-8ab2-7e9995a5ce2e)
+![image](https://github.com/user-attachments/assets/5ac89ead-e28b-4d24-8f3e-39446ffed4ec)
+![image](https://github.com/user-attachments/assets/0608482c-8b50-4e07-9f43-7d87d97bf5ec)
+![image](https://github.com/user-attachments/assets/cc1322f9-b6b6-47ef-9b85-b6f86ea0a5fc)
+![image](https://github.com/user-attachments/assets/f5c6c29d-fbb9-4fbe-9d96-fb5b574a7d0a)
+![image](https://github.com/user-attachments/assets/54609246-ee8c-40e8-b0bf-d62892b5bb54)
+![image](https://github.com/user-attachments/assets/92a7f47b-8b49-4133-89f6-021c05157e22)
+![image](https://github.com/user-attachments/assets/152874d2-528c-4773-8d8d-91ea548139b0)
+![image](https://github.com/user-attachments/assets/c0fab3f4-85ed-47b1-bd2b-bd051d3a7281)
+![image](https://github.com/user-attachments/assets/9ded95ae-b418-49d5-ab4f-c8e202676fd1)
+![image](https://github.com/user-attachments/assets/c768e62b-8657-4dbb-b364-f8db06e2b938)
